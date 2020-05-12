@@ -1,10 +1,10 @@
-# SCTTGR001
+# Resound Series A
 
 ### Artist
 A-Inc
 
-### Title
-Resound Series A
+### CAT No
+SCTTGR002
 
 ### Release
 1 May, 2020
@@ -28,15 +28,7 @@ Coming up through the Japan underground scene, at the age of 18 Akira Ishihara s
 From 2003-2004, he went on tour in Germany, and played at such places as “Electric Ballroom” at SO36 and at the legendary Tresor club. He has since played in countries around the world, including Austria, Hong-Kong, Taiwan and China.
 Having released many hard-techno tracks, he has become known for his heavy use of voice sampling along with a pumpin.. beat. His songs have been championed by DJ..s in clubs around the world.
 
+### A-Inc
 “A-Inc” is his second project. He makes the sound of deep and minimal under this name. End of summer 2007, He got release offer from Jay Haze who is running “Contexterrior”. First EP “Commodore Dub EP” was released by “Junion” October soon. This EP is supported by Ricardo Villalobos, Jay Haze and many DJs. It’s good effect to get more release & remix offer. Some EP which include his remix was released. “Remix EP” by Kaufe Musik, “Ballet EP (Ryoh Mitomi’s solo)” by Immigrant.
 After that, 2nd EP “Disorderly Forest EP” was released by “Afulab” (Thomas P Heckmann’s label). The strong groove developed from a unique and technical sound parts is played by a lot of famous DJ including Len Faki, Monika Kruze, and Richie Hawtin and enchants many club people all over the world.
 The remix or compilation release from Germany, Italy, UK label is scheduled in the future. Of course, solo EP, too.
-
-
-[official](https://scttgr.com/)  
-[facebook](https://www.facebook.com/scttgr/)  
-[twitter](https://twitter.com/scttgr)  
-[instagram](https://www.instagram.com/scott_tiger_records/)  
-[soundcloud](https://soundcloud.com/scttgr/)  
-
-CONTACT: label@scttgr.com
